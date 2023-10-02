@@ -1,2 +1,2 @@
-Caitlin Hamer
+Caitlin Hamer cbhamer@uchicago.edu 
 
